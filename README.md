@@ -8,7 +8,15 @@ I yume with jack kennedy if thats the right term, and i like sharks, super cool 
                 (҂°ロ°)... 🥩🦴(๑ᵔ⤙ᵔ๑)
   I enjoy analog horrors and gore in general, and collect bones during season, i like to fish and tweak machenery. i have a cannibalism au too
 ![IMG_9108](https://github.com/user-attachments/assets/5749b2d1-d7aa-4da0-a951-ff0668022d5b)
-HEAVY DNI on ppl who endulge in incest and non con?? first off time to rethink ur shit second off i have a lot trauma on such topic. dni tfc fans, dni house of puso fandom/romanticizers, dni proshit/darkship etc, dni under 13. i will block freely.
+
+HEAVY DNI on ppl who endulge in incest and non con?? first off time to rethink ur shit second off i have a lot trauma on such topic. dni tfc fans, dni house of puso fandom/romanticizers, 
+
+dni proshit/darkship etc, dni under 13. i will block freely.
+
+
+
 Click here to save the sturgeons! they are a dying species due to being used for their eggs, and killed, caught and kept, or from water pollution https://secure.riveredgenaturecenter.org/forms/donate 
 <img width="616" height="203" alt="IMG_2525" src="https://github.com/user-attachments/assets/12906323-7397-4d2e-8409-08488d169449" />
 ok ok ty for viewing my profile! 𐔌՞. .՞𐦯! 
+
+![IMG_8779](https://github.com/user-attachments/assets/07b4cb49-b08d-4384-968c-417e01c484fb)
