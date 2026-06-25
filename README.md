@@ -15,7 +15,7 @@ dni proshit/darkship etc, dni under 13. i will block freely.
 
 
 
-Click here to save the sturgeons! they are a dying species due to being used for their eggs, and killed, caught and kept, or from water pollution https://secure.riveredgenaturecenter.org/forms/donate 
+Click here to save the sturgeons! they are a dying species due to being used for their eggs, and killed, caught and kept, or from water pollution. the sudden and continuing drop in sturgeon in the Michigan river is not only devistating to the enviroment, but the native american locals who find deep meaning in the fish. it affects everyone and everything, just like the polar bears, the bees etc. it is insane how people overlook this. please check it out! if you live by the area, and please dont purchase any caviar. https://secure.riveredgenaturecenter.org/forms/donate 
 <img width="616" height="203" alt="IMG_2525" src="https://github.com/user-attachments/assets/12906323-7397-4d2e-8409-08488d169449" />
 ok ok ty for viewing my profile! 𐔌՞. .՞𐦯! 
 
